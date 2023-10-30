@@ -1,6 +1,8 @@
 # 💫 About Me:
 
-👯 I’m looking to collaborate on <br>Software developer<br>
+**Heitor Luís dos Santos Melo**
+
+🏍 Student <br>Computer Engineering<br>
 
 
 ## 🌐 Socials:
